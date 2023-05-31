@@ -15,5 +15,7 @@ so jason has been breaking everything left and right because hes not going to ge
 
 the whole thing is very weird, its an adult 50+ year old juvenile that just never grew up, absolute nuisance 🤡
 
-![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-05-29%20at%2012.25.18%20AM.png)
+
+# "so, you're telling me there's a chance" - jason moore
+[![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-05-29%20at%2012.25.18%20AM.png)](https://www.youtube.com/watch?v=-9IgLueodZA)
 
