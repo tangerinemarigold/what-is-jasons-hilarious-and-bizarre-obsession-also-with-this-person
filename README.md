@@ -19,3 +19,5 @@ the whole thing is very weird, its an adult 50+ year old juvenile that just neve
 # "so, you're telling me there's a chance" - jason moore
 [![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-05-29%20at%2012.25.18%20AM.png)](https://www.youtube.com/watch?v=-9IgLueodZA)
 
+# "so, you're telling me there's no chance" - isaac kohane and etc
+![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-06-01%20at%2011.39.45%20PM.png)
