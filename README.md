@@ -24,3 +24,6 @@ the whole thing is very weird, its an adult 50+ year old juvenile that just neve
 
 # "so, you're telling me i can steal your work without you ever knowing about it"
 ![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-06-02%20at%2011.59.26%20AM.png)
+
+# "so, you're telling me this is all real and it all happened?" - the press & netflix
+![img](https://github.com/tangerinemarigold/what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person/blob/main/Screenshot%202023-06-03%20at%201.05.21%20PM.png)
