@@ -1,4 +1,4 @@
-# what-is-jasons-hilarious-and-bizarre-obsession-also-with-this-person
+# what-is-jasons-hilarious-and-[bizarre-obsession](https://www.dailymail.co.uk/femail/article-7858307/K-pop-superfan-MARRIES-cardboard-cutout-idol-Las-Vegas.html)-also-with-this-person
 
 doesnt this look like someone you know over at where you are, whats his obsession, i dont get it
 
